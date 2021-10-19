@@ -3,7 +3,7 @@ diamond hack free fire - diamond hack
 [[Updated Oktober 1, 2021]] diamond hack diamond hack free fire free diamonds hack free fire hack diamond free fire hacking app garena free fire diamond hack generator
 
   `CLICK HERE Free Fire Hack.
-  <https://www.mychaelknight.com/free-fire>`_
+  <https://www.thewideinfo.com/free-fire-diamond-hack/>`_
 
   `CLICK HERE Free Fire Hack.
   <https://www.mychaelknight.com/free-fire>`_
